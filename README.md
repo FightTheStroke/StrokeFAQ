@@ -136,3 +136,8 @@ Stroke in adults presents risk factors such as high blood pressure, smoking, dia
 The symptoms in the child and even more in the newborn are more difficult to recognize; The infant and the infant can not communicate symptoms that are often not easily visible (drowsiness, marked inconsolability, poor sucking ability, etc.).
 
 There are still today average times of diagnostic delay ranging from 24 hours in paediatric forms to a few months or years in perinatal forms.
+
+
+Milano, Italy, June 2017 
+
+Originally posted on https://www.fightthestroke.org/guide-e-faq/
